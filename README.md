@@ -1,4 +1,4 @@
-### <p align="center"> ![3bedda9da185b632a0b2800720bebfce](https://github.com/user-attachments/assets/3d90d16e-e230-4579-aa81-2e8ae8965d95)
+### <p align="center"> ![q](https://i.pinimg.com/originals/3b/ed/da/3bedda9da185b632a0b2800720bebfce.gif)
 ### <p align="center">絶望を踏み越えて 希望が輝くと 
 ### <p align="center">脈打つ心臓 捧げよう   。°˖ ✧
 ____ 
