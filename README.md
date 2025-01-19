@@ -6,7 +6,6 @@ ____
 ### <p align="center">my socials
 ### ∘₊✧───── [вк](https://vk.com/nag1to)
 ### ∘₊✧───── [тг](https://t.me/ql0ne)
-### ∘₊✧───── [тгк](https://t.me/qlonekomaeatme)
 <p align="center"> <img src="https://static.wikia.nocookie.net/danganronpa/images/5/58/Nagito_Komaeda_The_Servant_Head_Pixel_Icon.png/revision/latest?cb=20170519032651"<width="50" height="30"> я не против новых знакомств, feel free to interact w/me :3
   
 ____
