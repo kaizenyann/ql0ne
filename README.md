@@ -1,4 +1,4 @@
-# <p align="center"> ![q](https://i.pinimg.com/originals/3b/ed/da/3bedda9da185b632a0b2800720bebfce.gif)
+### <p align="center"> ![image](https://github.com/user-attachments/assets/1571adf1-b6c9-4730-8892-32d433acbc4f)
 ### <p align="center">내 머리에 너가 새긴 문장
 ### <p align="center">only you can control me   。°˖ ✧
 ____ 
