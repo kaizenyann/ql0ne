@@ -1,21 +1,21 @@
-### <p align="center"> ![q](https://i.pinimg.com/originals/3b/ed/da/3bedda9da185b632a0b2800720bebfce.gif)
-### <p align="center">絶望を踏み越えて 希望が輝くと 
-### <p align="center">脈打つ心臓 捧げよう   。°˖ ✧
+# <p align="center"> ![q](https://i.pinimg.com/originals/3b/ed/da/3bedda9da185b632a0b2800720bebfce.gif)
+### <p align="center">내 머리에 너가 새긴 문장
+### <p align="center">only you can control me   。°˖ ✧
 ____ 
 
 ### <p align="center">my socials
 ### ∘₊✧───── [вк](https://vk.com/nag1to)
 ### ∘₊✧───── [тг](https://t.me/ql0ne)
-<p align="center"> <img src="https://static.wikia.nocookie.net/danganronpa/images/5/58/Nagito_Komaeda_The_Servant_Head_Pixel_Icon.png/revision/latest?cb=20170519032651"<width="50" height="30"> я не против новых знакомств, feel free to interact w/me :3
+<p align="center"> <img src="https://i.pinimg.com/originals/be/9c/6d/be9c6d528bba24a847734b5908e4c5e6.gif"<width="30" height="30"> я не против новых знакомств, feel free to interact w/me :3
   
 ____
   
-### <p align="center"> 至光(ひかり)のためならば この胸 切り裂き
-### <p align="center">最後の一滴(ひとしずく) 唇に滴らし 濡らしてあげる
+### <p align="center"> 넌 계속 내가 널 포기하는 걸 포기하게 만들어
+### <p align="center">this world always gives me love and fear
 # <p align="center">∞
 
-<p align="center"> <img src="https://media1.tenor.com/m/F6rVeHCJJK4AAAAd/nagito-my-beloved.gif"<width="130" height="130">
-<img src="https://media1.tenor.com/m/dmIhO_ZZZfEAAAAd/nagito-komaeda.gif"<width="130" height="130">
-<img src="https://media.tenor.com/GhHDDVX9ie0AAAAj/danganronpa.gif"<width="130" height="130">
-<img src="https://media1.tenor.com/m/GEL7QXd4uhYAAAAd/nagito-komaeda.gif"<width="130" height="130">
-<img src="https://media1.tenor.com/m/13ddOw-4I4AAAAAd/nagito-komaeda.gif"<width="130" height="130">
+<p align="center"> <img src="https://media1.tenor.com/m/JxOPntQrz-QAAAAd/xdinary-heroes-xdhluvs.gif"<width="130" height="130">
+<img src="https://media.tenor.com/LfXkK-A6b-8AAAAd/gaon-xdinary-heroes.gif"<width="130" height="130">
+<img src="https://media1.tenor.com/m/KNf66AMlIWAAAAAd/gaon-heart-xdinary-heroes.gif"<width="130" height="130">
+<img src="https://media1.tenor.com/m/SdF8q7C4Z78AAAAd/xdinary-heroes-gaon-xdinary-heroes-jiseok.gif"<width="130" height="130">
+<img src="https://media.tenor.com/EqwXD8Ij1CYAAAAM/xdinary-heroes-gaon.gif"<width="130" height="130">
