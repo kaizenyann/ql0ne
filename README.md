@@ -1,7 +1,7 @@
 ### <p align="center"> ![](https://komarev.com/ghpvc/?username=kaizenyann&color=blue)
 ### <p align="center"> ![image](https://media1.tenor.com/m/9T4ygKwk_3AAAAAd/bobzora-p3.gif)
-### <p align="center">내 머리에 너가 새긴 문장
-### <p align="center">only you can control me   。°˖ ✧
+### <p align="center">сгори дотла, моя вселенная
+### <p align="center">   из темноты: ты, ты, ты, ты, ты! 。°˖ 
 ____ 
 
 ### <p align="center">my socials
@@ -11,6 +11,6 @@ ____
   
 ____
   
-### <p align="center"> 넌 계속 내가 널 포기하는 걸 포기하게 만들어
-### <p align="center">this world always gives me love and fear
+### <p align="center"> одна зола, но там весенние
+### <p align="center">взойдут цветы: ты, ты, ты, ты, ты!
 # <p align="center">∞
